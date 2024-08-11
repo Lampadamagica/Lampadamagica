@@ -1,4 +1,4 @@
-## Seja bem vindo ao salão do BOSS 👑
+## Seja bem vindo ao salão do *BOSS* 👑
 
 Não posso revelar meu nome 😢 
 - Estou estudando no alura pois sou um estudante 😕
